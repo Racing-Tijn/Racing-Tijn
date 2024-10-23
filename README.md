@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Tijn
-- 👀 I’m interested in 
+- 👀 I’m interested in F1
 - 🌱 I’m currently learning bullshit
 - 💞️ I’m looking to collaborate on nothing especialy with you
 - 📫 How to reach me, You better not
